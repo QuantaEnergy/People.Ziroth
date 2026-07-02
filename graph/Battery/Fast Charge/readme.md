@@ -1,0 +1,1 @@
+- [Insanely Fast & Dirt Cheap: Blade Battery 2.0 is Here](https://youtu.be/UK8M1Z2IH4E)
